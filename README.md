@@ -1,4 +1,6 @@
-<img width="1748" height="1181" alt="1000365838" src="https://github.com/user-attachments/assets/f0d2e04d-67ec-4c35-b0d7-a2cf4e5a948a" />
+<img width="2048" height="1536" alt="1000427735" src="https://github.com/user-attachments/assets/34ba971d-c122-43e2-9bff-d24316a6f851" />
+
+
 
 
 
@@ -6,5 +8,13 @@
 
 
 ㅤ    ㅤㅤㅤㅤㅤ
-ㅤᥫ᭡🌊ㅤ * .. warmth:eucalyptusm cherish the sea  ( lovely ) öf extraordinary,ㅤ&&. dove-lona serendipity.ㅤ‘ f꯭a꯭nf꯭e꯭tti꯭ a꯭ng꯭eli꯭c ’ㅤ 양사🐚ᩙ . .
+     ㅤㅤ
+ㅤׁㅤ운이 좋은ㅤ❉ 𓂂 Lɩbatı𑄹ɳㅤׁㅤꨴ “Pσetry”ㅤ..ི𝄅𝄄
+ㅤⵗ ͜͝ ⵗ ͜͝ ⵗㅤ..ㅤCɭơvęr-Fieɭɗㅤׅㅤི̣̣☘️ֵㅤ*ㅤBlęss͡eɗㅤ𝂅
+ㅤׁ🫗.ㅤB𑄹taɲıςalㅤ𝂅ㅤ⏝̣̣̥𝄅𝄄͜ꦸ ׁ͜ ⏝ㅤ조용한ㅤ𓂂 ⵗ ͜͝ ⵗ ͜͝ ⵗ
+ㅤㅤ
+ㅤೃ𑄹ㅤׁㅤ(𑂴“Ɗew-ƙissęɗ”) ᩙㅤ✿ㅤLuckɓɭoσmㅤ⬮  ׁ
+ㅤㅤ𓂂ㅤㅤ*ㅤ𓌲𓏬𓌲ㅤㅤ𝂅ㅤ핑크 연꽃ㅤ𝂅ㅤㅤ𓌲𓏬𓌲..🪷
+ㅤWatҽr-Bɭęssıɲԍㅤ⏝𝄄𑂴ᩙֵ⏝̣⏝𝄄𑂴ᩙֵ⏝̣ㅤ'Pσȵɗㅤ𓐚
+ㅤㅤ
 ㅤㅤㅤ
